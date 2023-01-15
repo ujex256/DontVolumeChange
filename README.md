@@ -5,4 +5,4 @@ http://yamatyuu.net/computer/program/vc2013/volset/index.html
 
 イヤホン付けたら8が丁度良くて、いつか20ぐらいにして鼓膜がおかしくなりそうなんでそれの対策用です
 
-https://youtu.be/yCa63HM4P8Y
+https://youtube.com/shorts/XkGE6DfQPBs?feature=share
